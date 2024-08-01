@@ -1,2 +1,2 @@
 # challenges
-Random challeenges i take up for myself
+Random challenges i take up for myself
